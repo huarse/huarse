@@ -4,7 +4,7 @@
 
 ## Contact me
 
-huarse@gmail.com
+admin@gialeedon.com
 
 ![需求滞销-宽](https://user-images.githubusercontent.com/3724927/187819681-30bf2bde-3f47-4f99-b1b4-09a8a80bee0a.jpg)
 
